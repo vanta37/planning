@@ -1,3 +1,3 @@
 # planning
 
-reyzaru
+haha no personal info for the ctf 
